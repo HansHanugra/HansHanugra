@@ -6,7 +6,7 @@
 
 ## Education:
 
-#### 1. ongoing [SMK N 2 Semarang ](https://smkn2semarang.sch.id/) | Software Engineering | Semarang `2021 - 2024`
+#### 1. ongoing [SMK N 2 Semarang](https://smkn2semarang.sch.id/) | Software Engineering | Semarang `2021 - 2024`
  
 ## Work Experience:
 #### Soon
